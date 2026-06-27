@@ -27,4 +27,4 @@ ac: miy2q on twt
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31opjmhdhfk62csl2bzm6f5jkfyy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
-
+<p align="center">Sign my ATA instead of sending a gimmick if u wanna tell me something pls</p>
