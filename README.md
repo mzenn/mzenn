@@ -9,6 +9,10 @@
   <a 
      </p>
 <h2></h2>
+    
+$${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \space trillion \space years!!"}$$
+ $${\color{CCAA88}"Forever \space and \space ever, \space we'll, \space be \space together."}$$
+  
 <p align="center"> 
 <img src="https://cdn.phototourl.com/free/2026-06-27-7878f1ed-7606-4a68-82e8-7eed522612f9.jpg"/>
 </p>
