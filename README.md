@@ -8,6 +8,9 @@
   <a href="https://guns.lol/jodiojoestar">Guns.lol</a>
   <a 
      </p>
+    <p align="center">
+<img src="https://komarev.com/ghpvc/?username=mzenn&label=Fans&color=E8B3BF">
+</p>
 <h2></h2>
     
 $${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \space trillion \space years!!"}$$
@@ -19,4 +22,9 @@ $${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \spa
 ac: miy2q on twt
 
 <h2></h2>
-lazy bum: hi im. going to work on this eventually 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31opjmhdhfk62csl2bzm6f5jkfyy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
+
