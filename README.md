@@ -19,7 +19,7 @@ $${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \spa
 <p align="center"> 
 <img src="https://cdn.phototourl.com/free/2026-06-27-7878f1ed-7606-4a68-82e8-7eed522612f9.jpg"/>
 </p>
-ac: miy2q on twt
+<sub>ac: miy2q on twt</sub>
 
 <h2></h2>
 <p align="center">
