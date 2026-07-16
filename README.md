@@ -32,3 +32,4 @@ $${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \spa
 <p align="center">Socially awkward and horrible at responses LOL pls dont kill me if i cant keep up a convo</p>
 <p align="center">Im stupid and (diag) autistic so like pls use tonetags if ur gonna be mean and we arent close lol.,,</p>
 <p align="center">Sx/Sp628 INFP IEI 6w5 ELVF mel-chol 🤣</p>
+<p align="center">Genuinely dni if you participate in ship wars or shipping discourse, you people piss me off beyond belief</p> 
