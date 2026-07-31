@@ -31,5 +31,5 @@ $${\color{ddaacc}"Let's \space go \space night-night \space for \space 3000 \spa
 <p align="center">That one annoying oomf whos too starpilled</p>
 <p align="center">Socially awkward and horrible at responses LOL pls dont kill me if i cant keep up a convo</p>
 <p align="center">Im stupid and (diag) autistic so like pls use tonetags if ur gonna be mean and we arent close lol.,,</p>
-<p align="center">Sx/Sp648 6w5 ISFP ESI Fi - Se - Ni - Te ELVF mel-chol s[L]/U/eN chaotic neutral 🤣</p>
+<p align="center">Sx/Sp648 6w5 ISFP ESI Fi - Se - Ni - Te ELVF mel-chol s[L]/U/eN 🤣</p>
 <p align="center">Genuinely dni if you participate in ship wars or shipping discourse, you people piss me off beyond belief</p> 
